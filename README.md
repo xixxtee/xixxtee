@@ -4,6 +4,7 @@ so dont be mad pls.
 uhhh, things below :3
        ~
 - discord: ".xixxtee"
+       ~
 idk what else to put here...
 
 <!---
